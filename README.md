@@ -1,0 +1,3 @@
+# notes
+
+# General self tips
